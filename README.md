@@ -1,3 +1,3 @@
 # muhammed
 
-SAMAtech muhammed spibul fathi
+SAMAtech muhammed soibul fathi oshoala
